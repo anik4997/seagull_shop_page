@@ -1,0 +1,1 @@
+# seagull_shop_page
